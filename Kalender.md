@@ -7,10 +7,10 @@
 23 april 14:00 koffiedrinken Joost Jeschke \
 23 t/m 25 april vrij weekend \
 28 april wandelen in uitgeest \
-27 april 8:30 Red room Floor 0 \ 
+27 april 8:30 Red room Floor 0 \
 1 t/m 2 mei Annet ouders in Delft \
 30 t/m 2 mei vrij weekend \
-3 mei 19 maanden met annet \ 
+3 mei 19 maanden met annet \
 7 t/m 9 mei vrij weekend \
 14 t/m 16 mei vrij weekend \
 14 mei 3 maanden na hell week lezen \
@@ -31,10 +31,10 @@
 6  augustus Trouwdag Dorinde \
 3 september 23 maanden met Annet \
 10 t/m 13 september dutch mountain trail \
-3 oktober 2 jaar met Annet \
+3 oktober 2 jaar met Annet 
 
 
-# Verjaardagen \
+# Verjaardagen
 16 januari Verjaardag Mark \
 4  februari Verjaardag Roy \
 14 februari Verjaardag Annet \
@@ -49,4 +49,4 @@
 29 september Verjaardag David \
 11 november Verjaardag Jim \
 14 november Verjaardag Pap \
-14 november Verjaardag Tweeling \
+14 november Verjaardag Tweeling
