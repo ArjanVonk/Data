@@ -1,6 +1,6 @@
-# Deadlines en data:
-20 april GEO ICT practice meeting stuk over real time modelleren met brandweer
-21 april 8:30 Red room Floor 0
+# Deadlines en data: \r
+20 april GEO ICT practice meeting stuk over real time modelleren met brandweer \r
+21 april 8:30 Red room Floor 0 \r
 21 april Oleg mailen met vragen of ik midterm mag doen in de volgende CSI meeting
 21 april 12:30 wandelen met Harold
 23 april 8:30 Red room Floor 0
