@@ -20,7 +20,7 @@
 21 t/m 24 mei weekend annet \
 23 t/m 24 mei Pinksteren \
 25 mei 15:00 CSI meeting \
-28 mei verassing \
+28 mei verrassing \
 29 mei tips and tricks on consultancy 10:30-12:00 \
 3 juni 20 maanden met Annet \
 3 juli 21 maanden met Annet \
@@ -28,6 +28,7 @@
 3  juli Afstudeerborrel David \
 4 juli t/m 1 augustus Annet in Zweden \
 23 juli t/m 31 juli Ignotisvakantie \
+2 augustus t/m 14 augustus met Annet weg? \
 3 augustus 22 maanden met Annet \
 1 t/m 11 augustus ouders op vakantie \
 6  augustus Trouwdag Dorinde \
