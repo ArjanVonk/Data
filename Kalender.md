@@ -1,11 +1,11 @@
-# Deadlines en data \
+# Deadlines en data
 20 april GEO ICT practice meeting stuk over real time modelleren met brandweer \
 21 april 8:30 Red room Floor 0 \
-21 april Oleg mailen met vragen of ik midterm mag doen in de volgende CSI meeting \ 
+21 april Oleg mailen met vragen of ik midterm mag doen in de volgende CSI meeting \
 21 april 12:30 wandelen met Harold \
-23 april 8:30 Red room Floor 0 \ 
-23 april 14:00 koffiedrinken Joost Jeschke \ 
-23 t/m 25 april vrij weekend \ 
+23 april 8:30 Red room Floor 0 \
+23 april 14:00 koffiedrinken Joost Jeschke \
+23 t/m 25 april vrij weekend \
 28 april wandelen in uitgeest \
 27 april 8:30 Red room Floor 0 \ 
 1 t/m 2 mei Annet ouders in Delft \
