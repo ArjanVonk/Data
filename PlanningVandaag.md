@@ -1,30 +1,30 @@
 # Planning      \
-[]7      \
+[]**7**      \
 []      \
-[]8      \
+[]**8**      \
 []      \
-[]9      \
+[]**9**      \
 []      \
-[]10      \
+[]**10**      \
 []      \
-[]11      \
+[]**11**      \
 []      \
-[]12 ^Work in UB on Git implementation      \
+[]**12** ^Work in UB on Git implementation      \
 []	 Lunch      \
-[]13 Lunch      \
+[]**13** Lunch      \
 []	 Prepare Coffeedate      \
-[]14 Coffeedate with Joost      \
+[]**14** Coffeedate with Joost      \
 []	 Pauze      \
-[]15 Finish 2D to 3D transformation       \
+[]**15** Finish 2D to 3D transformation       \
 []   Finish 2D to 3D transformation      \
-[]16 Finish 2D to 3D transformation      \
+[]**16** Finish 2D to 3D transformation      \
 []	 Pauze      \
-[]17 Borrel      \
+[]**17** Borrel      \
 []      \
-[]18      \
+[]**18**      \
 []      \
-[]19      \
+[]**19**      \
 []      \
-[]20      \
+[]**20**      \
 []      \
-[]21      \
+[]**21**      \
