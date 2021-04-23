@@ -13,6 +13,7 @@
 30 t/m 2 mei vrij weekend \
 3 mei 19 maanden met annet \
 7 t/m 9 mei vrij weekend \
+12 mei Progress meeting 4:30 \
 14 t/m 16 mei vrij weekend \
 14 mei 3 maanden na hell week lezen \
 15 mei Hemelvaartsdag \
