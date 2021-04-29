@@ -1,9 +1,4 @@
 # Deadlines en data
-27 april chillen met Annet op Koningsdag \
-28 april wandelen in uitgeest \
-28 april 8:00 Red seats Floor 0 \
-28 april Chillen met jasper \
-29 april 8:30 Red room Floor 0 \
 29 april Chillen met mark \
 1 t/m 2 mei Annet ouders in Delft \
 3 mei 19 maanden met annet \
