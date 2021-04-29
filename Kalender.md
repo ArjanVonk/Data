@@ -12,7 +12,7 @@
 13 mei Ignotis JOL \
 14 t/m 16 mei vrij weekend \
 14 mei 3 maanden na hell week lezen \
-15 mei Hemelvaartsdag \
+15 mei Hemelvaartsdag BBQ sjolk\
 21 t/m 24 mei weekend annet \
 23 t/m 24 mei Pinksteren \
 25 mei 15:00 CSI meeting \
