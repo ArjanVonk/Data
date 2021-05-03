@@ -1,7 +1,8 @@
 # Deadlines en data
 3 mei 19 maanden met annet \
-4 mei studeren met Jasper
+4 mei studeren met Jasper \
 7 t/m 9 mei vrij weekend \
+9 mei Moederdag \
 12 mei Progress meeting 4:30 \
 13 mei Hemelvaartsdag \
 13 mei Ignotis JOL \
@@ -11,9 +12,9 @@
 21 t/m 24 mei weekend annet \
 23 t/m 24 mei Pinksteren \
 25 mei 15:00 CSI meeting \
-28 mei verrassing \
 29 mei tips and tricks on consultancy 10:30-12:00 \
 3 juni 20 maanden met Annet \
+20 juni Vaderdag \
 3 juli 21 maanden met Annet \
 3 augustus 22 maanden met Annet \
 3  juli Afstudeerborrel David \
@@ -25,7 +26,8 @@
 6  augustus Trouwdag Dorinde \
 3 september 23 maanden met Annet \
 10 t/m 13 september dutch mountain trail \
-3 oktober 2 jaar met Annet 
+3 oktober 2 jaar met Annet \
+8 mei Moederdag \
 
 
 # Verjaardagen
