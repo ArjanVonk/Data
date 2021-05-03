@@ -1,7 +1,6 @@
 # Deadlines en data
-29 april Chillen met mark \
-1 t/m 2 mei Annet ouders in Delft \
 3 mei 19 maanden met annet \
+4 mei studeren met Jasper
 7 t/m 9 mei vrij weekend \
 12 mei Progress meeting 4:30 \
 13 mei Hemelvaartsdag \
