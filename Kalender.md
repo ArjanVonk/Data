@@ -12,6 +12,7 @@
 21 t/m 24 mei weekend annet \
 23 t/m 24 mei Pinksteren \
 25 mei 15:00 CSI meeting \
+27 mei Control Career Fair \
 29 mei tips and tricks on consultancy 10:30-12:00 \
 3 juni 20 maanden met Annet \
 20 juni Vaderdag \
