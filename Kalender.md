@@ -1,15 +1,13 @@
 # Deadlines en data
-3 mei 19 maanden met annet \
-4 mei studeren met Jasper \
-7 t/m 9 mei vrij weekend \
-9 mei Moederdag \
 10 mei Met Lianne eten \ 
+11 mei Studeren bij Jasper
 12 mei Progress meeting 4:30 \
 13 mei Hemelvaartsdag \
 13 mei Ignotis JOL \
 14 t/m 16 mei vrij weekend \
 14 mei 3 maanden na hell week lezen \
 15 mei Hemelvaartsdag BBQ sjolk\
+17 mei 14:00 Progress meeting \
 21 t/m 24 mei weekend annet \
 23 t/m 24 mei Pinksteren \
 25 mei 15:00 CSI meeting \
