@@ -1,7 +1,7 @@
 # Deadlines en data
 10 mei Met Lianne eten \ 
 11 mei Studeren bij Jasper
-12 mei Progress meeting 4:30 \
+12 mei Wandelen met Annet in de Lunch\
 13 mei Hemelvaartsdag \
 13 mei Ignotis JOL \
 14 t/m 16 mei vrij weekend \
