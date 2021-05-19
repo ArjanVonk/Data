@@ -1,14 +1,4 @@
 # Deadlines en data
-10 mei Met Lianne eten \ 
-11 mei Studeren bij Jasper
-12 mei Wandelen met Annet in de Lunch\
-13 mei Hemelvaartsdag \
-13 mei Ignotis JOL \
-14 t/m 16 mei vrij weekend \
-14 mei 3 maanden na hell week lezen \
-15 mei Hemelvaartsdag BBQ sjolk\
-17 mei 14:00 Progress meeting \
-19 mei wandeling dutch mountain trial \
 21 t/m 24 mei weekend annet \
 23 t/m 24 mei Pinksteren \
 25 mei 15:00 CSI meeting \
