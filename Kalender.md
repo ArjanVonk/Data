@@ -5,7 +5,7 @@
 27 mei Control Career Fair \
 29 mei tips and tricks on consultancy 10:30-12:00 \
 3 juni 20 maanden met Annet \
-19 juni Twilight imperium spelen met de boys \
+19 juni Twilight Imperium spelen met de boys \
 20 juni Vaderdag \
 3 juli 21 maanden met Annet \
 3 augustus 22 maanden met Annet \
