@@ -1,10 +1,9 @@
 # Deadlines en data
-21 t/m 24 mei weekend annet \
-23 t/m 24 mei Pinksteren \
-25 mei 15:00 CSI meeting \
-27 mei Control Career Fair \
 29 mei tips and tricks on consultancy 10:30-12:00 \
+29 mei TI4 spelen met Irek en David \
 3 juni 20 maanden met Annet \
+4 t/m 6 juni vrij weekend \
+11 t/m 13 juni vrij weekend \
 19 juni Twilight Imperium spelen met de boys \
 20 juni Vaderdag \
 3 juli 21 maanden met Annet \
