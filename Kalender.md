@@ -1,6 +1,7 @@
 # Deadlines en data
 29 mei tips and tricks on consultancy 10:30-12:00 \
 29 mei TI4 spelen met Irek en David \
+1 juni 16:00 huisarts \
 3 juni 20 maanden met Annet \
 4 t/m 6 juni vrij weekend \
 11 t/m 13 juni vrij weekend \
