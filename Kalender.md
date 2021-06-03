@@ -9,6 +9,7 @@
 11 t/m 13 juni vrij weekend \
 19 juni Twilight Imperium spelen met de boys \
 20 juni Vaderdag \
+2 juli Barbecue bij Robert
 3 juli 21 maanden met Annet \
 3 augustus 22 maanden met Annet \
 3  juli Afstudeerborrel David \
