@@ -1,11 +1,16 @@
 # Deadlines en data
-1 juni 16:00 huisarts \
-1 juni bij Annet Eten \
 3 juni 20 maanden met Annet \
 3 juni Chillen met Internacho's \
+4 juni Studeren UB ochtend \
+4 juni Studeren SJB middag \
 4 juni Suprise date met Annet \
+5 juni Studeren UB ochtend \
+6 juni Spelletjesdag \
 4 t/m 6 juni vrij weekend \
 6 juni spelletjesdag \
+8 juni Studeren 3me ochtend \
+9 juni studeren UB ochtend \
+10 juni studeren UB ochtend \
 11 t/m 13 juni vrij weekend \
 19 juni Twilight Imperium spelen met de boys \
 20 juni Vaderdag \
