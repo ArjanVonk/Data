@@ -8,13 +8,14 @@
 6 juni Spelletjesdag \
 4 t/m 6 juni vrij weekend \
 6 juni spelletjesdag \
+7 juni Nummer opnemen met beckie \
 8 juni Studeren 3me ochtend \
 9 juni studeren UB ochtend \
 10 juni studeren UB ochtend \
 11 t/m 13 juni vrij weekend \
 19 juni Twilight Imperium spelen met de boys \
 20 juni Vaderdag \
-2 juli Barbecue bij Robert
+2 juli Barbecue bij Robert \
 3 juli 21 maanden met Annet \
 3 augustus 22 maanden met Annet \
 3  juli Afstudeerborrel David \
@@ -25,6 +26,7 @@
 1 t/m 11 augustus ouders op vakantie \
 6  augustus Trouwdag Dorinde \
 3 september 23 maanden met Annet \
+9 september Geo-ICT bbq \
 10 t/m 13 september dutch mountain trail \
 3 oktober 2 jaar met Annet \
 8 mei Moederdag \
