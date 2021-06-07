@@ -1,13 +1,4 @@
 # Deadlines en data
-3 juni 20 maanden met Annet \
-3 juni Chillen met Internacho's \
-4 juni Studeren UB ochtend \
-4 juni Studeren SJB middag \
-4 juni Suprise date met Annet \
-5 juni Studeren UB ochtend \
-6 juni Spelletjesdag \
-4 t/m 6 juni vrij weekend \
-6 juni spelletjesdag \
 7 juni Nummer opnemen met beckie \
 8 juni Studeren 3me ochtend \
 9 juni studeren UB ochtend \
@@ -19,7 +10,6 @@
 3 juli 21 maanden met Annet \
 3 augustus 22 maanden met Annet \
 3  juli Afstudeerborrel David \
-4 juli t/m 1 augustus Annet in Zweden \
 23 juli t/m 31 juli Ignotisvakantie \
 2 augustus t/m 14 augustus met Annet weg? \
 3 augustus 22 maanden met Annet \
