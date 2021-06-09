@@ -1,11 +1,16 @@
 # Deadlines en data
-7 juni Nummer opnemen met beckie \
-8 juni Studeren 3me ochtend \
 9 juni studeren UB ochtend \
 10 juni studeren UB ochtend \
+11 juni Naar ouders \
+11 juni Met Dorinde Chillen \
+12 juni Met David chillen in de middag \ 
+13 juni voetbal kijken? \ 
 11 t/m 13 juni vrij weekend \
+17 juni Nederlands elftal \
 19 juni Twilight Imperium spelen met de boys \
 20 juni Vaderdag \
+21 juni Nederlands elftal \
+25 juni Geomatics day \
 2 juli Barbecue bij Robert \
 3 juli 21 maanden met Annet \
 3 augustus 22 maanden met Annet \
