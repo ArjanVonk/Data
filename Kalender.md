@@ -6,6 +6,7 @@
 12 juni Met David chillen in de middag \ 
 13 juni voetbal kijken? \ 
 11 t/m 13 juni vrij weekend \
+16 juni TI 3 player oefenen mark,jasper \
 17 juni Nederlands elftal \
 19 juni Twilight Imperium spelen met de boys \
 20 juni Vaderdag \
