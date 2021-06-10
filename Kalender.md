@@ -12,6 +12,7 @@
 20 juni Vaderdag \
 21 juni Nederlands elftal \
 25 juni Geomatics day \
+27 juni Laurens in NL \
 2 juli Barbecue bij Robert \
 3 juli 21 maanden met Annet \
 3 augustus 22 maanden met Annet \
