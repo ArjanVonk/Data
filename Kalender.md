@@ -12,6 +12,7 @@
 20 juni Vaderdag \
 21 juni Nederlands elftal \
 25 juni Geomatics day \
+25 juni Development of a platform for stereo visual odometry based platooning 10:00 [link] (https://tudelft.zoom.us/j/96377018023?pwd=T24xMFFxWDFYcXFTY1ltNm9rM2d6QT09) \
 27 juni Laurens in NL \
 2 juli Barbecue bij Robert \
 3 juli 21 maanden met Annet \
