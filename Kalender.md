@@ -1,11 +1,5 @@
 # Deadlines en data
-9 juni studeren UB ochtend \
-10 juni studeren UB ochtend \
-11 juni Naar ouders \
-11 juni Met Dorinde Chillen \
-12 juni Met David chillen in de middag \ 
-13 juni voetbal kijken? \ 
-11 t/m 13 juni vrij weekend \
+15 juni Met Annet afspreken \
 16 juni TI 3 player oefenen mark,jasper \
 17 juni Nederlands elftal \
 19 juni Twilight Imperium spelen met de boys \
@@ -14,6 +8,7 @@
 25 juni Geomatics day \
 25 juni Development of a platform for stereo visual odometry based platooning 10:00 [link] (https://tudelft.zoom.us/j/96377018023?pwd=T24xMFFxWDFYcXFTY1ltNm9rM2d6QT09) \
 27 juni Laurens in NL \
+1 juli 8:50 Vaccin Volmerlaan 12 Rijswijk \
 2 juli Barbecue bij Robert \
 3 juli 21 maanden met Annet \
 3 augustus 22 maanden met Annet \
@@ -21,6 +16,7 @@
 23 juli t/m 31 juli Ignotisvakantie \
 2 augustus t/m 14 augustus met Annet weg? \
 3 augustus 22 maanden met Annet \
+5 augustus 11:40 Vaccin Volmerlaan 12 Rijswijk\
 1 t/m 11 augustus ouders op vakantie \
 6  augustus Trouwdag Dorinde \
 3 september 23 maanden met Annet \
