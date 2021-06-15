@@ -11,6 +11,7 @@
 1 juli 8:50 Vaccin Volmerlaan 12 Rijswijk \
 2 juli Barbecue bij Robert \
 3 juli 21 maanden met Annet \
+3 juli naar ouders annet
 3 augustus 22 maanden met Annet \
 3  juli Afstudeerborrel David \
 23 juli t/m 31 juli Ignotisvakantie \
