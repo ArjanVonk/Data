@@ -1,30 +1,28 @@
 # Deadlines en data
-3 mei 19 maanden met annet \
-4 mei studeren met Jasper \
-7 t/m 9 mei vrij weekend \
-9 mei Moederdag \
-12 mei Progress meeting 4:30 \
-13 mei Hemelvaartsdag \
-13 mei Ignotis JOL \
-14 t/m 16 mei vrij weekend \
-14 mei 3 maanden na hell week lezen \
-15 mei Hemelvaartsdag BBQ sjolk\
-21 t/m 24 mei weekend annet \
-23 t/m 24 mei Pinksteren \
-25 mei 15:00 CSI meeting \
-29 mei tips and tricks on consultancy 10:30-12:00 \
-3 juni 20 maanden met Annet \
+15 juni Met Annet afspreken \
+16 juni TI 3 player oefenen mark,jasper \
+17 juni Nederlands elftal \
+19 juni Twilight Imperium spelen met de boys \
 20 juni Vaderdag \
+21 juni Nederlands elftal \
+25 juni Geomatics day \
+25 juni Development of a platform for stereo visual odometry based platooning 10:00 [link] (https://tudelft.zoom.us/j/96377018023?pwd=T24xMFFxWDFYcXFTY1ltNm9rM2d6QT09) \
+26 juni Met Lianne Beachvolleyballen \
+27 juni Laurens in NL \
+1 juli 8:50 Vaccin Volmerlaan 12 Rijswijk \
+2 juli Barbecue bij Robert \
 3 juli 21 maanden met Annet \
+3 juli naar ouders annet
 3 augustus 22 maanden met Annet \
 3  juli Afstudeerborrel David \
-4 juli t/m 1 augustus Annet in Zweden \
 23 juli t/m 31 juli Ignotisvakantie \
 2 augustus t/m 14 augustus met Annet weg? \
 3 augustus 22 maanden met Annet \
+5 augustus 11:40 Vaccin Volmerlaan 12 Rijswijk\
 1 t/m 11 augustus ouders op vakantie \
 6  augustus Trouwdag Dorinde \
 3 september 23 maanden met Annet \
+9 september Geo-ICT bbq \
 10 t/m 13 september dutch mountain trail \
 3 oktober 2 jaar met Annet \
 8 mei Moederdag \
