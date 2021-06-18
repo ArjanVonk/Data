@@ -1,8 +1,6 @@
 # Deadlines en data
-15 juni Met Annet afspreken \
-16 juni TI 3 player oefenen mark,jasper \
-17 juni Nederlands elftal \
 19 juni Twilight Imperium spelen met de boys \
+20 juni naar bergen op zoom fietsen \
 20 juni Vaderdag \
 21 juni Nederlands elftal \
 25 juni Geomatics day \
@@ -14,7 +12,6 @@
 3 juli 21 maanden met Annet \
 3 juli naar ouders annet
 3 augustus 22 maanden met Annet \
-3  juli Afstudeerborrel David \
 23 juli t/m 31 juli Ignotisvakantie \
 2 augustus t/m 14 augustus met Annet weg? \
 3 augustus 22 maanden met Annet \
