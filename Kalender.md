@@ -19,6 +19,7 @@
 1 t/m 11 augustus ouders op vakantie \
 6  augustus Trouwdag Dorinde \
 3 september 23 maanden met Annet \
+5 september GP Zandvoort \
 9 september Geo-ICT bbq \
 10 t/m 13 september dutch mountain trail \
 3 oktober 2 jaar met Annet \
