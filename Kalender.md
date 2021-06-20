@@ -10,7 +10,8 @@
 1 juli 8:50 Vaccin Volmerlaan 12 Rijswijk \
 2 juli Barbecue bij Robert \
 3 juli 21 maanden met Annet \
-3 juli naar ouders annet
+3 juli naar ouders annet \
+11 juli TI spelen? \
 3 augustus 22 maanden met Annet \
 23 juli t/m 31 juli Ignotisvakantie \
 2 augustus t/m 14 augustus met Annet weg? \
