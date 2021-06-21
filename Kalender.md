@@ -1,5 +1,6 @@
 # Deadlines en data
 21 juni Nederlands elftal \
+23 juni mogelijk Janssen vaccin aanvragen \
 25 juni Geomatics day \
 25 juni Development of a platform for stereo visual odometry based platooning 10:00 [link] (https://tudelft.zoom.us/j/96377018023?pwd=T24xMFFxWDFYcXFTY1ltNm9rM2d6QT09) \
 26 juni Met Lianne Beachvolleyballen \
