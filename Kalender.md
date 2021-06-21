@@ -8,8 +8,8 @@
 1 juli 8:50 Vaccin Volmerlaan 12 Rijswijk \
 2 juli Barbecue bij Robert (weekend bij Annet) \
 3 juli 21 maanden met Annet \
-3 juli naar ouders annet \
-10 juli TI spelen? \
+3 juli naar ouders Annet \
+10 juli TI spelen 11 uur \
 11 juli naar ouders? \
 17 juli t/m 21 juli met Irek weg \
 3 augustus 22 maanden met Annet \
