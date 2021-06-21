@@ -5,6 +5,7 @@
 25 juni Development of a platform for stereo visual odometry based platooning 10:00 [link] (https://tudelft.zoom.us/j/96377018023?pwd=T24xMFFxWDFYcXFTY1ltNm9rM2d6QT09) \
 26 juni Met Lianne Beachvolleyballen \
 27 juni Laurens in NL \
+27 juni 18:00 NL elftal \
 1 juli 8:50 Vaccin Volmerlaan 12 Rijswijk \
 2 juli Barbecue bij Robert (weekend bij Annet) \
 3 juli 21 maanden met Annet \
