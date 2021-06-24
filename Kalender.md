@@ -5,7 +5,7 @@
 26 juni Met Lianne Beachvolleyballen \
 27 juni Laurens in NL \
 27 juni 18:00 NL elftal \
-1 juli 8:50 Vaccin Volmerlaan 12 Rijswijk \
+30 juni 15:57 Vaccinatie Volmerlaan 12 Rijswijk \
 2 juli Barbecue bij Robert (weekend bij Annet) \
 3 juli 21 maanden met Annet \
 3 juli naar ouders Annet \
@@ -17,7 +17,6 @@
 23 juli t/m 31 juli Ignotisvakantie \
 2 augustus t/m 14 augustus met Annet weg? \
 3 augustus 22 maanden met Annet \
-5 augustus 11:40 Vaccin Volmerlaan 12 Rijswijk\
 1 t/m 11 augustus ouders op vakantie \
 6  augustus Trouwdag Dorinde \
 3 september 23 maanden met Annet \
