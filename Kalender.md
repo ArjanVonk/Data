@@ -20,6 +20,7 @@
 3 augustus 22 maanden met Annet \
 1 t/m 11 augustus ouders op vakantie \
 6  augustus Trouwdag Dorinde \
+28 augustus Familiedag Zwaansmeer \
 3 september 23 maanden met Annet \
 5 september GP Zandvoort \
 9 september Geo-ICT bbq \
