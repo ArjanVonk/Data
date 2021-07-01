@@ -9,6 +9,7 @@
 2 juli Barbecue bij Robert (weekend bij Annet) \
 3 juli 21 maanden met Annet \
 3 juli naar ouders Annet \
+6 juli 13:00 lunchen met Gijs \
 10 juli TI spelen 11 uur \
 11 juli naar ouders? \
 15 juli mogelijk aanvragen vaccinatiebewijs \
