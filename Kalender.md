@@ -12,6 +12,7 @@
 6 juli 13:00 lunchen met Gijs \
 10 juli TI spelen 11 uur \
 11 juli naar ouders? \
+13 juli met Irek afspreken \
 15 juli mogelijk aanvragen vaccinatiebewijs \
 17 juli t/m 21 juli met Irek weg \
 3 augustus 22 maanden met Annet \
