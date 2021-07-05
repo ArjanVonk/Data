@@ -18,6 +18,7 @@
 5 september GP Zandvoort \
 9 september Geo-ICT bbq \
 10 t/m 13 september dutch mountain trail \
+17 september ICGT \
 3 oktober 2 jaar met Annet \
 8 mei Moederdag \
 
