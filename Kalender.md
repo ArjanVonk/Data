@@ -1,6 +1,7 @@
 # Deadlines en data
 6 juli 13:00 lunchen met Gijs \
 6 juli 12:00-13:00 Practice meeting \
+8 juli Werken op cgi 7a \
 10 juli TI spelen 11 uur \
 11 juli naar ouders \
 13 juli met Irek afspreken \
