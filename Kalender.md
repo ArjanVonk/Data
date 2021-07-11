@@ -13,6 +13,7 @@
 3 augustus 22 maanden met Annet \
 1 t/m 11 augustus ouders op vakantie \
 6  augustus Trouwdag Dorinde \
+21 augustus wandelen bij Jan de Wit \
 28 augustus Familiedag Zwaansmeer \
 29 augustus Verjaardag Oma Annet \
 3 september 23 maanden met Annet \
