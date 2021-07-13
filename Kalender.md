@@ -8,6 +8,7 @@
 15 juli mogelijk aanvragen vaccinatiebewijs, volledig gevaccineerd \
 17 juli t/m 21 juli met Irek weg \
 3 augustus 22 maanden met Annet \
+23 juli 10:00 op Linate Airport Milaan zijn voor Ignotisvakantie \
 23 juli t/m 31 juli Ignotisvakantie \
 2 augustus t/m 14 augustus met Annet weg \
 3 augustus 22 maanden met Annet \
