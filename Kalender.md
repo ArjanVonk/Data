@@ -1,10 +1,4 @@
 # Deadlines en data
-8 juli Werken op cgi 7a \
-9 juli 12:00 Huisarts \
-10 juli TI spelen 11 uur \
-11 juli naar ouders \
-13 juli 8:20 Oren uitspuiten
-13 juli met Irek afspreken \
 15 juli mogelijk aanvragen vaccinatiebewijs, volledig gevaccineerd \
 17 juli t/m 21 juli met Irek weg \
 3 augustus 22 maanden met Annet \
