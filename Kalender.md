@@ -6,6 +6,7 @@
 3 september 23 maanden met Annet \
 5 september GP Zandvoort \
 9 september Geo-ICT bbq \
+16 september feestje Jasper \
 10 t/m 13 september dutch mountain trail \
 3 oktober 2 jaar met Annet \
 9 oktober Verassingsdate met Annet \
