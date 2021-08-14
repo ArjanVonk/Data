@@ -1,5 +1,6 @@
 # Deadlines en data
-17 augustus Dubbeldate Rick en Petra
+17 augustus Dubbeldate Rick en Petra \
+18 augustus Lunch meeting Eveline rice \
 21 augustus wandelen bij Jan de Wit \
 28 augustus Familiedag Zwaansmeer \
 29 augustus Verjaardag Oma Annet \
