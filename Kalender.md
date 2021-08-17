@@ -6,13 +6,23 @@
 21 augustus wandelen bij Jan de Wit \
 28 augustus Familiedag Zwaansmeer \
 29 augustus Verjaardag Oma Annet \
+31 augustus 13:00-15:00 Afstudeergroep \
+1 september 14:00-15:00 Metnal Fitness \
 3 september 23 maanden met Annet \
 5 september GP Zandvoort \
+7 september 13:00-15:00 Afstudeergroep \
+8 september 14:00-15:00 Metnal Fitness \
 9 september Geo-ICT bbq \
-16 september feestje Jasper \
 10 t/m 13 september dutch mountain trail \
+14 september 13:00-15:00 Afstudeergroep \
+15 september 14:00-15:00 Metnal Fitness \
+16 september feestje Jasper \
+22 september 14:00-15:00 Metnal Fitness \
+28 september 13:00-15:00 Afstudeergroep \
 3 oktober 2 jaar met Annet \
 9 oktober Verassingsdate met Annet \
+12 oktober 13:00-15:00 Afstudeergroep \
+26 oktober 13:00-15:00 Afstudeergroep \
 8 mei Moederdag \
 
 
