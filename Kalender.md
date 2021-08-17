@@ -2,6 +2,7 @@
 17 augustus Dubbeldate Rick en Petra \
 18 augustus Lunch meeting Eveline rucie \
 18 augustus met Mark spelletjes spelen \
+19 augustus 11:00 Koffie drinken met Daan \
 21 augustus wandelen bij Jan de Wit \
 28 augustus Familiedag Zwaansmeer \
 29 augustus Verjaardag Oma Annet \
