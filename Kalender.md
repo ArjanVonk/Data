@@ -3,7 +3,9 @@
 18 augustus Lunch meeting Eveline rucie \
 18 augustus met Mark spelletjes spelen \
 19 augustus 11:00 Koffie drinken met Daan \
+20 augustus Naar zus annet \
 21 augustus wandelen bij Jan de Wit \
+28 augustus 10:45 Van Gogh Museum \
 28 augustus Familiedag Zwaansmeer \
 29 augustus Verjaardag Oma Annet \
 31 augustus 13:00-15:00 Afstudeergroep \
