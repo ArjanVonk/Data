@@ -3,6 +3,7 @@
 18 augustus Lunch meeting Eveline rucie \
 18 augustus met Mark spelletjes spelen \
 19 augustus 11:00 Koffie drinken met Daan \
+19 augustus chillen met Irek \
 20 augustus Naar zus annet \
 21 augustus wandelen bij Jan de Wit \
 28 augustus 10:45 Van Gogh Museum \
