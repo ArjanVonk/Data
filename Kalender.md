@@ -6,6 +6,7 @@
 19 augustus chillen met Irek \
 20 augustus Naar zus annet \
 21 augustus wandelen bij Jan de Wit \
+27 augustus Bij David chillen 's avonds \
 28 augustus 10:45 Van Gogh Museum \
 28 augustus Familiedag Zwaansmeer \
 29 augustus Verjaardag Oma Annet \
