@@ -26,6 +26,7 @@
 9 oktober Verassingsdate met Annet \
 12 oktober 13:00-15:00 Afstudeergroep \
 26 oktober 13:00-15:00 Afstudeergroep \
+13 november Ignotis weekend \
 8 mei Moederdag \
 
 
