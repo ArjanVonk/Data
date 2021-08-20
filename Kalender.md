@@ -9,6 +9,7 @@
 31 augustus 13:00-15:00 Afstudeergroep \
 1 september 14:00-15:00 Metnal Fitness \
 3 september 23 maanden met Annet \
+4 september zus annet verhuizen \
 5 september GP Zandvoort \
 7 september 13:00-15:00 Afstudeergroep \
 8 september 14:00-15:00 Metnal Fitness \
