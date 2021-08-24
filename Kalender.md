@@ -1,8 +1,8 @@
 # Deadlines en data
-24 augustus 15:00 Sparsessie met Robert \
-24 augustus Chillen met Mark \
+25 augustus 11:15 Intake Afstudeergroep \
 25 augustus Progress meeting Carlas en Robert \
 26 augustus 11:00 koffiedrinken met Daan \
+26 augustus Chillen met Mark \
 27 augustus Bij David chillen 's avonds \
 28 augustus 10:45 Van Gogh Museum \
 28 augustus Familiedag Zwaansmeer \
