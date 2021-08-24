@@ -1,6 +1,6 @@
 # Deadlines en data
 25 augustus 11:15 Intake Afstudeergroep \
-25 augustus Progress meeting Carlas en Robert \
+25 augustus 15:00 Progress meeting Carlas en Robert \
 26 augustus 11:00 koffiedrinken met Daan \
 26 augustus Chillen met Mark \
 27 augustus Bij David chillen 's avonds \
