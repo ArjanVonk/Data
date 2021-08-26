@@ -14,17 +14,24 @@
 4 september zus annet verhuizen \
 5 september GP Zandvoort \
 7 september 13:00-15:00 Afstudeergroep \
+7 september 18:15-19:15 Dansen \
 8 september 14:00-15:00 Mental Fitness \
 9 september Geo-ICT bbq \
 10 t/m 13 september dutch mountain trail \
 14 september 13:00-15:00 Afstudeergroep \
+14 september 18:15-19:15 Dansen \
 15 september 14:00-15:00 Mental Fitness \
 16 september feestje Jasper \
+21 september 18:15-19:15 Dansen \
 22 september 14:00-15:00 Mental Fitness \
+28 september 18:15-19:15 Dansen \ 
 28 september 13:00-15:00 Afstudeergroep \
 3 oktober 2 jaar met Annet \
+5 oktober 18:15-19:15 Dansen \
 9 oktober Verassingsdate met Annet \
+12 oktober 18:15-19:15 Dansen \
 12 oktober 13:00-15:00 Afstudeergroep \
+19 oktober 18:15-19:15 Dansen \
 26 oktober 13:00-15:00 Afstudeergroep \
 13 november Ignotis weekend \
 8 mei Moederdag \
