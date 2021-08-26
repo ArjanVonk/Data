@@ -9,6 +9,7 @@
 29 augustus Verjaardag Oma Annet \
 31 augustus 13:00-15:00 Afstudeergroep \
 1 september 14:00-15:00 Mental Fitness \
+2 September Pandemicdate \
 3 september 23 maanden met Annet \
 4 september zus annet verhuizen \
 5 september GP Zandvoort \
