@@ -6,7 +6,7 @@
 27 augustus Bij David chillen 's avonds \
 28 augustus 10:45 Van Gogh Museum \
 28 augustus Familiedag Zwaansmeer \
-29 augustus Verjaardag Oma Annet \
+31 augustus 8:20 naar huisarts \ 
 31 augustus 13:00-15:00 Afstudeergroep \
 1 september 14:00-15:00 Mental Fitness \
 2 September Pandemicdate \
