@@ -28,6 +28,7 @@
 12 oktober 13:00-15:00 Afstudeergroep \
 19 oktober 18:15-19:15 Dansen \
 26 oktober 13:00-15:00 Afstudeergroep \
+5 november afstubo Marloes \
 13 november Ignotis weekend \
 8 mei Moederdag \
 
