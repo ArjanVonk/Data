@@ -1,18 +1,12 @@
 # Deadlines en data
-25 augustus 11:15 Intake Afstudeergroep \
-25 augustus 15:00 Progress meeting Carlas en Robert \
-26 augustus 11:00 koffiedrinken met Daan \
-26 augustus Chillen met Mark \
-27 augustus Bij David chillen 's avonds \
-28 augustus 10:45 Van Gogh Museum \
-28 augustus Familiedag Zwaansmeer \
+30 augustus 12:00 Dansen opgeven \
 31 augustus 8:20 naar huisarts \ 
 31 augustus 13:00-15:00 Afstudeergroep \
 1 september 14:00-15:00 Mental Fitness \
-2 September Pandemicdate \
+31 Augustus Pandemicdate \
 3 september 23 maanden met Annet \
+3 september 15:30 meeting afstuderen \
 4 september zus annet verhuizen \
-5 september GP Zandvoort \
 7 september 13:00-15:00 Afstudeergroep \
 7 september 18:15-19:15 Dansen \
 8 september 14:00-15:00 Mental Fitness \
@@ -24,6 +18,7 @@
 16 september feestje Jasper \
 21 september 18:15-19:15 Dansen \
 22 september 14:00-15:00 Mental Fitness \
+25 September Twilight Imperium spelen \
 28 september 18:15-19:15 Dansen \ 
 28 september 13:00-15:00 Afstudeergroep \
 3 oktober 2 jaar met Annet \
