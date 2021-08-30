@@ -1,18 +1,18 @@
 # Deadlines en data
 30 augustus 12:00 Dansen opgeven \
 31 augustus 8:20 naar huisarts \ 
-31 augustus 13:00-15:00 Afstudeergroep \
+31 augustus 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693\
 1 september 14:00-15:00 Mental Fitness \
 31 Augustus Pandemicdate \
 3 september 23 maanden met Annet \
 3 september 15:30 meeting afstuderen \
 4 september zus annet verhuizen \
-7 september 13:00-15:00 Afstudeergroep \
+7 september 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693\
 7 september 18:15-19:15 Dansen \
 8 september 14:00-15:00 Mental Fitness \
 9 september Geo-ICT bbq \
 10 t/m 13 september dutch mountain trail \
-14 september 13:00-15:00 Afstudeergroep \
+14 september 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693   \
 14 september 18:15-19:15 Dansen \
 15 september 14:00-15:00 Mental Fitness \
 16 september feestje Jasper \
@@ -20,14 +20,14 @@
 22 september 14:00-15:00 Mental Fitness \
 25 September Twilight Imperium spelen \
 28 september 18:15-19:15 Dansen \ 
-28 september 13:00-15:00 Afstudeergroep \
+28 september 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
 3 oktober 2 jaar met Annet \
 5 oktober 18:15-19:15 Dansen \
 9 oktober Verassingsdate met Annet \
 12 oktober 18:15-19:15 Dansen \
-12 oktober 13:00-15:00 Afstudeergroep \
+12 oktober 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
 19 oktober 18:15-19:15 Dansen \
-26 oktober 13:00-15:00 Afstudeergroep \
+26 oktober 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
 5 november afstubo Marloes \
 13 november Ignotis weekend \
 8 mei Moederdag \
