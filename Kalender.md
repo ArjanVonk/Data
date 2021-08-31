@@ -7,11 +7,11 @@
 3 september 23 maanden met Annet \
 3 september 15:30 meeting afstuderen \
 4 september zus annet verhuizen \
-7 september 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693\
 7 september 18:15-19:15 Dansen \
 8 september 14:00-15:00 Mental Fitness \
 9 september Geo-ICT bbq \
 10 t/m 13 september dutch mountain trail \
+10 september 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693\
 14 september 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693   \
 14 september 18:15-19:15 Dansen \
 15 september 14:00-15:00 Mental Fitness \
