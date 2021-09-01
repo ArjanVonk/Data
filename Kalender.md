@@ -1,9 +1,4 @@
 # Deadlines en data
-30 augustus 12:00 Dansen opgeven \
-31 augustus 8:20 naar huisarts \ 
-31 augustus 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693\
-1 september 14:00-15:00 Mental Fitness \
-31 Augustus Pandemicdate \
 3 september 23 maanden met Annet \
 3 september 15:30 meeting afstuderen \
 4 september zus annet verhuizen \
