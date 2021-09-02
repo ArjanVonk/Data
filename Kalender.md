@@ -10,7 +10,7 @@
 14 september 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693   \
 14 september 18:15-19:15 Dansen \
 15 september 14:00-15:00 Mental Fitness \
-16 september feestje Jasper \
+18 september feestje Jasper \
 21 september 18:15-19:15 Dansen \
 22 september 14:00-15:00 Mental Fitness \
 25 September Twilight Imperium spelen \
