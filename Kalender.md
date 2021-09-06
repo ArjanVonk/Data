@@ -7,6 +7,7 @@
 9 september Geo-ICT bbq \
 10 t/m 13 september dutch mountain trail \
 10 september 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693\
+14 september 8:30 Fysio, Handdoek, ID mee \
 14 september 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693   \
 14 september 18:15-19:15 Dansen \
 15 september 14:00-15:00 Mental Fitness \
