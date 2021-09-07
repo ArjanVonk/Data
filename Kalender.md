@@ -1,7 +1,4 @@
 # Deadlines en data
-3 september 23 maanden met Annet \
-3 september 15:30 meeting afstuderen \
-4 september zus annet verhuizen \
 7 september 18:15-19:15 Dansen \
 8 september 14:00-15:00 Mental Fitness \
 9 september Geo-ICT bbq \
