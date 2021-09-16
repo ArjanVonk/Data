@@ -20,7 +20,7 @@
 5 november afstubo Marloes \
 13 november Ignotis weekend \
 19 november Afstubo Mark \
-22- 26 november Your Career week TU Delft \ 
+22- 26 november Your Career week TU Delft \
 8 mei Moederdag \
 
 
