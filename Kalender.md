@@ -1,14 +1,14 @@
 # Deadlines en data
-16 september met Mels chillen \ 
+16 september met Mels chillen \
 17 september met Annet Chillen/eten \
 18 september feestje Jasper \
-20 september Pandemic Legacy Spelen \ 
+20 september Pandemic Legacy Spelen \
 21 september 18:15-19:15 Dansen \
 22 september 14:00-15:00 Mental Fitness \
 23 september 13:00 met Jeije praten afstudeergroep \
 24 september Met Irek chillen \
 25 september Twilight Imperium spelen \
-28 september 18:15-19:15 Dansen \ 
+28 september 18:15-19:15 Dansen \
 28 september 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
 3 oktober 2 jaar met Annet \
 5 oktober 18:15-19:15 Dansen \
