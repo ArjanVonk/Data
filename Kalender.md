@@ -6,6 +6,7 @@
 21 september 18:15-19:15 Dansen \
 22 september 14:00-15:00 Mental Fitness \
 23 september 13:00 met Jeije praten afstudeergroep \
+23 september Sasha TI leren \
 24 september Met Irek chillen \
 25 september Twilight Imperium spelen \
 28 september 18:15-19:15 Dansen \
