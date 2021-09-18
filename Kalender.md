@@ -22,6 +22,7 @@
 13 november Ignotis weekend \
 19 november Afstubo Mark \
 22- 26 november Your Career week TU Delft \
+15 Jan afstubo David \
 8 mei Moederdag \
 
 
