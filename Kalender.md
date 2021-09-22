@@ -18,6 +18,7 @@
 13 november Ignotis weekend \
 19 november Afstubo Mark \
 22- 26 november Your Career week TU Delft \
+27 november Atlantis kerstdiner \
 15 Jan afstubo David \
 8 mei Moederdag \
 
