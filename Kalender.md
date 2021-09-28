@@ -11,6 +11,7 @@
 12 oktober 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
 16 oktober fietsen met Harold en Csaba \
 19 oktober 18:15-19:15 Dansen \
+21 oktober French Dispatch in Bios \
 23 oktober weekend Annet Weert ouders \
 26 oktober 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
 5 november afstubo Marloes \
