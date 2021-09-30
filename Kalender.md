@@ -1,5 +1,6 @@
 # Deadlines en data
 3 oktober 2 jaar met Annet \
+4 oktober Pandemicdate \
 5 oktober 18:15-19:15 Dansen \
 8 oktober naar Dune met Neven \
 9 oktober Verassingsdate met Annet \
