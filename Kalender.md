@@ -16,6 +16,7 @@
 19 november Afstubo Mark \
 22- 26 november Your Career week TU Delft \
 27 november Atlantis kerstdiner \
+24 november naar Ashton Brothers met Ouders \
 15 Jan afstubo David \
 18-20 februari Atlantis reunieweekend \
 8 mei Moederdag \
