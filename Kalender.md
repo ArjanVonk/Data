@@ -15,6 +15,7 @@
 5 november afstubo Marloes \
 13 november Ignotis weekend \
 19 november Afstubo Mark \
+19 november wss afstubo Lianne \
 22- 26 november Your Career week TU Delft \
 27 november Atlantis kerstdiner \
 24 november naar Ashton Brothers met Ouders \
