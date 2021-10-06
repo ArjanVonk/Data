@@ -4,6 +4,8 @@
 5 oktober 18:15-19:15 Dansen \
 8 oktober naar Dune met Neven \
 9 oktober Verassingsdate met Annet \
+10 oktober 11:00 Meeten met Eveline \
+10 oktober Naar Eindhoven in de middag \
 12 oktober 18:15-19:15 Dansen \
 12 oktober 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
 15 oktober 10:00 (9:45 inloop) Afstudeerpraatje Lianne Pulse Technology Zaal \
@@ -20,7 +22,8 @@
 22- 26 november Your Career week TU Delft \
 27 november Atlantis kerstdiner \
 24 november naar Ashton Brothers met Ouders \
-15 Jan afstubo David \
+9  januari Abra Afscheidsreunie \ 
+15 januari afstubo David \
 18-20 februari Atlantis reunieweekend \
 8 mei Moederdag \
 
