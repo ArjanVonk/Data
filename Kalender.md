@@ -16,6 +16,7 @@
 13 november Ignotis weekend \
 19 november Afstubo Mark \
 19 november wss afstubo Lianne \
+20 november Afstubo Bob \
 22- 26 november Your Career week TU Delft \
 27 november Atlantis kerstdiner \
 12 december Naar Spinvis \
