@@ -19,6 +19,7 @@
 20 november Afstubo Bob \
 22- 26 november Your Career week TU Delft \
 27 november Atlantis kerstdiner \
+3 december Kluskorace \
 12 december Naar Spinvis \
 24 December naar Ashton Brothers met Ouders \
 9  januari Abra Afscheidsreunie \ 
