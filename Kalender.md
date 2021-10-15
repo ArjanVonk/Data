@@ -1,8 +1,4 @@
-# Deadlines en data
-12 oktober 18:15-19:15 Dansen \
-12 oktober 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
-15 oktober 10:00 (9:45 inloop) Afstudeerpraatje Lianne Pulse Technology Zaal \
-15 oktober spelletjes spelen \
+# Deadlines en data:
 16 oktober fietsen met Harold en Csaba \
 17 oktober Falie Begijnhof checken \
 19 oktober 18:15-19:15 Dansen \
