@@ -1,6 +1,7 @@
 # Deadlines en data:
-16 oktober fietsen met Harold en Csaba \
 19 oktober 18:15-19:15 Dansen \
+20 oktober Met Annet chillen \
+21 oktober Met Mels doorbufflen \
 21 oktober French Dispatch in Bios \
 23 oktober weekend Annet Weert ouders \
 24 oktober Falie Begijnhof checken \
