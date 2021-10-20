@@ -9,6 +9,7 @@
 25 oktober Pandemic date \
 26 oktober 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
 29 oktober 12:00 Arend Afstuderen \
+29 oktober Met David Chillen \
 30 oktober TI spelen \
 5 november afstubo Marloes \
 9 november 12:45-13:30 Career Conversations Jan kaper https://tudelft.zoom.us/j/99470787308?pwd=RHQ3Y0YrNHRyUDRtQzJFdDVTd0syZz09 \
