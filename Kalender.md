@@ -20,7 +20,7 @@
 11 december afstubo Jeroen \
 12 december Naar Spinvis \
 24 December naar Ashton Brothers met Ouders \
-9  januari Abra Afscheidsreunie \ 
+9  januari Abra Afscheidsreunie \
 15 januari afstubo David \
 18-20 februari Atlantis reunieweekend \
 8 mei Moederdag \
