@@ -1,13 +1,7 @@
 # Deadlines en data:
-19 oktober 18:15-19:15 Dansen \
-20 oktober Met Annet chillen \
-21 oktober Met Mels doorbuffelen \
-21 oktober French Dispatch in Bios \
-22 oktober 10:00 meeting Paul \
-23 oktober weekend Annet Weert ouders \
-24 oktober Falie Begijnhof checken \
 25 oktober Pandemic date \
 26 oktober 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
+26 oktober naar de film \
 29 oktober 12:00 Arend Afstuderen \
 29 oktober Met David Chillen \
 30 oktober TI spelen \
