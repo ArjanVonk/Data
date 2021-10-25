@@ -16,6 +16,7 @@
 27 november Atlantis kerstdiner \
 3 december Kluskorace \
 5 december Sinterklaas \
+11 december afstubo Jeroen \
 12 december Naar Spinvis \
 24 December naar Ashton Brothers met Ouders \
 9  januari Abra Afscheidsreunie \ 
