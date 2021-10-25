@@ -2,6 +2,7 @@
 25 oktober Pandemic date \
 26 oktober 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
 26 oktober naar de film \
+28 oktober Machine learning workshop \
 29 oktober 12:00 Arend Afstuderen \
 29 oktober Met David Chillen \
 30 oktober TI spelen \
