@@ -1,7 +1,4 @@
 # Deadlines en data:
-25 oktober Pandemic date \
-26 oktober 13:00-15:00 Afstudeergroep https://tudelft.zoom.us/j/96467383397?pwd=M0pzQWp2bkVZZUprQWZ2SlJyUTlwdz09 Passcode: 812693 \
-26 oktober naar de film \
 28 oktober Machine learning workshop \
 29 oktober 12:00 Arend Afstuderen \
 29 oktober Met David Chillen \
@@ -10,12 +7,14 @@
 5 november afstubo Marloes \
 9 november 12:45-13:30 Career Conversations Jan kaper https://tudelft.zoom.us/j/99470787308?pwd=RHQ3Y0YrNHRyUDRtQzJFdDVTd0syZz09 \
 13 november Ignotis weekend \
+14 november verjaardag Pap \
 19 november Afstubo Mark \
 19 november wss afstubo Lianne \
 20 november Afstubo Bob \
 22- 26 november Your Career week TU Delft \
 27 november Atlantis kerstdiner \
 3 december Kluskorace \
+4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
 11 december afstubo Jeroen \
 12 december Naar Spinvis \
