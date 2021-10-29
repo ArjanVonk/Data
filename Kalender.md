@@ -9,6 +9,7 @@
 9 november 12:45-13:30 Career Conversations Jan kaper https://tudelft.zoom.us/j/99470787308?pwd=RHQ3Y0YrNHRyUDRtQzJFdDVTd0syZz09 \
 13 november Ignotis weekend \
 14 november verjaardag Pap \
+17 november GeoIct klantendag \
 19 november Afstubo Mark \
 19 november wss afstubo Lianne \
 20 november Afstubo Bob \
