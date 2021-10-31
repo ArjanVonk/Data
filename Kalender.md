@@ -1,9 +1,4 @@
 # Deadlines en data:
-28 oktober Machine learning workshop \
-29 oktober 12:00 Arend Afstuderen \
-29 oktober Met David Chillen \
-30 oktober TI spelen \
-30 oktober Wintertijd \
 4 november Arend afstuderen vieren \
 5 november afstubo Marloes \
 9 november 12:45-13:30 Career Conversations Jan kaper https://tudelft.zoom.us/j/99470787308?pwd=RHQ3Y0YrNHRyUDRtQzJFdDVTd0syZz09 \
