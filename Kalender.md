@@ -2,6 +2,7 @@
 4 november Arend afstuderen vieren \
 5 november afstubo Marloes \
 9 november 12:45-13:30 Career Conversations Jan kaper https://tudelft.zoom.us/j/99470787308?pwd=RHQ3Y0YrNHRyUDRtQzJFdDVTd0syZz09 \
+12 november 8:00 Inschrijven Ballroom dansen \
 13 november Ignotis weekend \
 14 november verjaardag Pap \
 17 november GeoIct klantendag \
