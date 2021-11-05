@@ -1,6 +1,7 @@
 # Deadlines en data:
 4 november Arend afstuderen vieren \
 5 november afstubo Marloes \
+9 november 10:00 koffiedrinken met Ben \
 9 november 12:45-13:30 Career Conversations Jan kaper https://tudelft.zoom.us/j/99470787308?pwd=RHQ3Y0YrNHRyUDRtQzJFdDVTd0syZz09 \
 12 november 8:00 Inschrijven Ballroom dansen \
 13 november Ignotis weekend \
