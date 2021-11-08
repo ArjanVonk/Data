@@ -1,21 +1,20 @@
 # Deadlines en data:
-4 november Arend afstuderen vieren \
-5 november afstubo Marloes \
 9 november 10:00 koffiedrinken met Ben \
 9 november 12:45-13:30 Career Conversations Jan kaper https://tudelft.zoom.us/j/99470787308?pwd=RHQ3Y0YrNHRyUDRtQzJFdDVTd0syZz09 \
+11 november Arend afstuderen vieren \
 12 november 8:00 Inschrijven Ballroom dansen \
 13 november Ignotis weekend \
 14 november verjaardag Pap \
 17 november GeoIct klantendag \
 19 november Afstubo Mark \
-19 november wss afstubo Lianne \
+19 november Afstubo Lianne \
 20 november Afstubo Bob \
 22- 26 november Your Career week TU Delft \
 27 november Atlantis kerstdiner \
 3 december Kluskorace \
 4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
-11 december afstubo Jeroen \
+11 december Afstubo Jeroen \
 12 december Naar Spinvis \
 24 December naar Ashton Brothers met Ouders \
 9  januari Abra Afscheidsreunie \
