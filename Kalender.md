@@ -17,6 +17,7 @@
 11 december Afstubo Jeroen \
 12 december Naar Spinvis \
 24 December naar Ashton Brothers met Ouders \
+8  januari naar Memphis Maniacs in Purmerend \
 9  januari Abra Afscheidsreunie \
 15 januari afstubo David \
 18-20 februari Atlantis reunieweekend \
