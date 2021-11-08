@@ -6,6 +6,7 @@
 13 november Ignotis weekend \
 14 november verjaardag Pap \
 17 november GeoIct klantendag \
+18 november tot 2 december Robert in Egypte \
 19 november Afstubo Mark \
 19 november Afstubo Lianne \
 20 november Afstubo Bob \
