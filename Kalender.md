@@ -1,7 +1,4 @@
 # Deadlines en data:
-9 november 10:00 koffiedrinken met Ben \
-9 november 12:45-13:30 Career Conversations Jan kaper https://tudelft.zoom.us/j/99470787308?pwd=RHQ3Y0YrNHRyUDRtQzJFdDVTd0syZz09 \
-11 november Arend afstuderen vieren \
 12 november 8:00 Inschrijven Ballroom dansen \
 13 november Ignotis weekend \
 14 november verjaardag Pap \
@@ -10,6 +7,7 @@
 19 november Afstubo Mark \
 19 november Afstubo Lianne \
 20 november Afstubo Bob \
+25 november PandemicDate \
 22- 26 november Your Career week TU Delft \
 27 november Atlantis kerstdiner \
 3 december Kluskorace \
