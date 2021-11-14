@@ -1,9 +1,6 @@
 # Deadlines en data:
 17 november GeoIct klantendag \
 18 november tot 2 december Robert in Egypte \
-19 november Afstubo Mark \
-19 november Afstubo Lianne \
-20 november Afstubo Bob \
 25 november PandemicDate \
 22- 26 november Your Career week TU Delft \
 27 november Atlantis kerstdiner \
