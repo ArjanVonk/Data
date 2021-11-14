@@ -3,8 +3,6 @@
 18 november tot 2 december Robert in Egypte \
 25 november PandemicDate \
 22- 26 november Your Career week TU Delft \
-27 november Atlantis kerstdiner \
-3 december Kluskorace \
 4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
 11 december Afstubo Jeroen \
