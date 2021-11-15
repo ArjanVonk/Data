@@ -1,8 +1,11 @@
 # Deadlines en data:
+
 17 november GeoIct klantendag \
 18 november tot 2 december Robert in Egypte \
+22 november 12:45 lunchlezing Mark huppeldepup \
+23 november 12:45 lunchlezing Mariette groen \
 25 november PandemicDate \
-22- 26 november Your Career week TU Delft \
+26 november 16:00 presentatie Parrot \
 4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
 11 december Afstubo Jeroen \
