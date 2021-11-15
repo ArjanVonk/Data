@@ -1,6 +1,7 @@
 # Deadlines en data:
 
 17 november GeoIct klantendag \
+18 november 5 minuten presenteren over fijn werken. 
 18 november tot 2 december Robert in Egypte \
 20 november 15:00 Scythe spelen met de boys \
 22 november 12:45 lunchlezing Mark huppeldepup \
