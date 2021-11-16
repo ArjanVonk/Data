@@ -2,6 +2,7 @@
 18 november 5 minuten presenteren over fijn werken. \
 18 november Verrassingsdate \
 18 november tot 2 december Robert in Egypte \
+19 november bij Jim langs \
 20 november 15:00 Scythe spelen met de boys \
 22 november 12:45 lunchlezing Mark huppeldepup \
 23 november 12:45 lunchlezing Mariette groen \
