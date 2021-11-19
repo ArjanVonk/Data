@@ -11,9 +11,11 @@
 25 november PandemicDate \
 26 november 16:00 presentatie Parrot \
 26 november Borrelen met Laurens \
+27-28 november vrij weekend \
 4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
 11 december Afstubo Jeroen \
+11 december Karten Irek \
 12 december Naar Spinvis \
 24 December naar Ashton Brothers met Ouders \
 8  januari naar Memphis Maniacs in Purmerend \
