@@ -6,6 +6,7 @@
 20 november 15:00 Scythe spelen met de boys \
 22 november 12:45 lunchlezing Mark huppeldepup \
 23 november 12:45 lunchlezing Mariette groen \
+23 november 11:20 huisartsafspraak \
 23 november dubbeldate \
 25 november PandemicDate \
 26 november 16:00 presentatie Parrot \
