@@ -12,6 +12,7 @@
 26 november 16:00 presentatie Parrot \
 26 november Borrelen met Laurens \
 27-28 november vrij weekend \
+3 december Scythe spelen met de boys \
 4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
 11 december Afstubo Jeroen \
