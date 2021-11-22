@@ -2,7 +2,7 @@
 22 november 12:45 lunchlezing Mark huppeldepup \
 23 november 12:45 lunchlezing Mariette groen \
 23 november 11:20 huisartsafspraak \
-23 november dubbeldate \
+23 november met Annet chillen \
 25 november PandemicDate \
 26 november 16:00 presentatie Parrot \
 26 november Borrelen met Laurens \
@@ -13,6 +13,7 @@
 11 december Afstubo Jeroen \
 11 december Karten Irek \
 12 december Naar Spinvis \
+23 december Einde Digital Detox \
 24 December naar Ashton Brothers met Ouders \
 8  januari naar Memphis Maniacs in Purmerend \
 9  januari Abra Afscheidsreunie \
