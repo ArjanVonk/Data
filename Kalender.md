@@ -3,6 +3,7 @@
 23 november 12:45 lunchlezing Mariette groen \
 23 november 11:20 huisartsafspraak \
 23 november met Annet chillen \
+24 november Eten met Buren \
 25 november PandemicDate \
 26 november 16:00 presentatie Parrot \
 26 november Borrelen met Laurens \
