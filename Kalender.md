@@ -1,6 +1,5 @@
 # Deadlines en data:
-22 november 12:45 lunchlezing Mark huppeldepup https://tudelft.zoom.us/j/91973915553?pwd=Vm02MWs3YzNrNXZ4RjBGVkxiakovUT09 919 7391 5553 608911 \
-23 november 12:45 lunchlezing Mariette groen \
+23 november 12:45 lunchlezing Mariette groen https://tudelft.zoom.us/j/96231865547?pwd=Tkx5VStXQXV1R0hHOGtzUlhvZW1iQT09 962 3186 5547 895706\
 23 november 11:20 huisartsafspraak \
 23 november met Annet chillen \
 24 november Eten met Buren \
