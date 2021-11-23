@@ -1,12 +1,10 @@
 # Deadlines en data:
-23 november 12:45 lunchlezing Mariette groen https://tudelft.zoom.us/j/96231865547?pwd=Tkx5VStXQXV1R0hHOGtzUlhvZW1iQT09 962 3186 5547 895706\
-23 november 11:20 huisartsafspraak \
-23 november met Annet chillen \
 24 november Eten met Buren \
 25 november PandemicDate \
 26 november 16:00 presentatie Parrot \
 26 november Borrelen met Laurens \
 27-28 november vrij weekend \
+29 november Irek blijft slapen \
 3 december Scythe spelen met de boys \
 4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
