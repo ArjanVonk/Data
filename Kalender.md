@@ -14,6 +14,7 @@
 12 december Naar Spinvis \
 23 december Einde Digital Detox \
 24 December naar Ashton Brothers met Ouders \
+29 December Scythe Spelen met de Boys \
 8  januari naar Memphis Maniacs in Purmerend \
 9  januari Abra Afscheidsreunie \
 15 januari afstubo David \
