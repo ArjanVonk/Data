@@ -8,7 +8,6 @@
 3 december Scythe spelen met de boys \
 4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
-11 december Afstubo Jeroen \
 11 december Karten Irek \
 12 december Naar Spinvis \
 23 december Einde Digital Detox \
