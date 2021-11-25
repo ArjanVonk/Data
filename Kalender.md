@@ -10,6 +10,7 @@
 4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
 6 december t/m 13 december Hellweek? \
+7 december 14:45 afspraak orthopeed Rijswijk \
 8 december Eten met Afstudeergroep \
 11 december Karten Irek \
 12 december Naar Spinvis \
