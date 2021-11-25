@@ -1,5 +1,4 @@
 # Deadlines en data:
-24 november Eten met Buren \
 25 november PandemicDate \
 26 november 16:00 presentatie Parrot \
 26 november Borrelen met Laurens \
