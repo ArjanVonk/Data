@@ -11,6 +11,7 @@
 6 december t/m 13 december Hellweek? \
 7 december 14:45 afspraak orthopeed Rijswijk \
 8 december Eten met Afstudeergroep \
+9 december Pandemic Date \
 11 december Karten Irek \
 12 december Naar Spinvis \
 23 december Einde Digital Detox \
