@@ -1,8 +1,4 @@
 # Deadlines en data:
-25 november PandemicDate \
-26 november 16:00 presentatie Parrot \
-26 november Borrelen met Laurens \
-27 november naar ouders ?  \
 28 november chillen met Annet \
 29 november Irek blijft slapen \
 3 december Scythe spelen met de boys \
