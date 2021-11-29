@@ -10,7 +10,6 @@
 8 december Eten met Afstudeergroep \
 9 december Pandemic Date \
 11 december Karten Irek \
-12 december Naar Spinvis \
 23 december Einde Digital Detox \
 24 December naar Ashton Brothers met Ouders \
 29 December Scythe Spelen met de Boys \
