@@ -1,6 +1,7 @@
 # Deadlines en data:
-28 november chillen met Annet \
 29 november Irek blijft slapen \
+30 november Met Annet Chillen \
+2 december Met Annet chillen? \
 3 december Scythe spelen met de boys \
 4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
