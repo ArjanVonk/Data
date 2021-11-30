@@ -17,6 +17,7 @@
 9  januari Abra Afscheidsreunie \
 15 januari afstubo David \
 18-20 februari Atlantis reunieweekend \
+27 maart Spinvis \
 8 mei Moederdag \
 
 
