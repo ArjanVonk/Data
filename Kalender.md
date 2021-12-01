@@ -11,7 +11,6 @@
 9 december Pandemic Date \
 11 december Karten Irek \
 23 december Einde Digital Detox \
-24 December naar Ashton Brothers met Ouders \
 29 December Scythe Spelen met de Boys \
 8  januari naar Memphis Maniacs in Purmerend \
 9  januari Abra Afscheidsreunie \
