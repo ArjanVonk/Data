@@ -1,10 +1,10 @@
 # Deadlines en data:
-29 november Irek blijft slapen \
-30 november Met Annet Chillen \
+1 december met Lianne chillen \
 2 december Met Annet chillen? \
 3 december Scythe spelen met de boys \
 4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
+6 december Zelftesten aanvragen \
 6 december t/m 13 december Hellweek? \
 7 december 14:45 afspraak orthopeed Rijswijk \
 8 december Eten met Afstudeergroep \
