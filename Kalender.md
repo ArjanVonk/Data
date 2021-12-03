@@ -1,6 +1,4 @@
 # Deadlines en data:
-1 december met Lianne chillen \
-2 december Met Annet chillen? \
 3 december Scythe spelen met de boys \
 4 december Sinterklaas familie Annet \
 5 december Sinterklaas \
@@ -9,7 +7,7 @@
 7 december 14:45 afspraak orthopeed Rijswijk \
 8 december Eten met Afstudeergroep \
 9 december Pandemic Date \
-11 december Karten Irek \
+19 december Twilight Imperium spelen \
 23 december Einde Digital Detox \
 29 December Scythe Spelen met de Boys \
 8  januari naar Memphis Maniacs in Purmerend \
