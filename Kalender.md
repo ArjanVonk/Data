@@ -1,7 +1,4 @@
 # Deadlines en data:
-3 december Scythe spelen met de boys \
-4 december Sinterklaas familie Annet \
-5 december Sinterklaas \
 6 december Zelftesten aanvragen \
 6 december t/m 13 december Hellweek? \
 7 december 14:45 afspraak orthopeed Rijswijk \
