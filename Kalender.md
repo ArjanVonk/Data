@@ -1,9 +1,11 @@
 # Deadlines en data:
-6 december Zelftesten aanvragen \
-6 december t/m 13 december Hellweek? \
+7 december 10:00 Meeting Robert \
 7 december 14:45 afspraak orthopeed Rijswijk \
 8 december Eten met Afstudeergroep \
 9 december Pandemic Date \
+12 december 14:00 F1 Race Abu Dhabi \ 
+12 december Dubbeldate \
+14 december 10:00 Meeting Robert \
 19 december Twilight Imperium spelen \
 21 december Zelftesten aanvragen \
 23 december Einde Digital Detox \
