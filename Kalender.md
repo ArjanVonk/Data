@@ -5,6 +5,7 @@
 8 december Eten met Afstudeergroep \
 9 december Pandemic Date \
 19 december Twilight Imperium spelen \
+21 december Zelftesten aanvragen \
 23 december Einde Digital Detox \
 29 December Scythe Spelen met de Boys \
 8  januari naar Memphis Maniacs in Purmerend \
