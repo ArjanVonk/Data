@@ -3,6 +3,7 @@
 7 december 14:45 afspraak orthopeed Rijswijk \
 8 december Eten met Afstudeergroep \
 9 december Pandemic Date \
+10 december Schrijfmateriaal naar Robert versturen \
 12 december 14:00 F1 Race Abu Dhabi \ 
 12 december Dubbeldate \
 14 december 10:00 Meeting Robert https://teams.microsoft.com/l/meetup-join/19%3ameeting_NWY2MDBkMjgtNDE1Mi00OThiLWJkM2EtMjEzOTQ0ZjIwMjU5%40thread.v2/0?context=%7b%22Tid%22%3a%22b9fec68c-c92d-461e-9a97-3d03a0f18b82%22%2c%22Oid%22%3a%223296c4b3-c05e-49df-91ec-c4620d705aff%22%7d\
