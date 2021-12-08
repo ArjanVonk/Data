@@ -6,6 +6,7 @@
 12 december 14:00 F1 Race Abu Dhabi \
 12 december Dubbeldate \
 14 december 10:00 Meeting Robert \
+14 december 16:30 MRI scan laten maken \
 19 december Twilight Imperium spelen \
 21 december Zelftesten aanvragen \
 23 december Einde Digital Detox \
