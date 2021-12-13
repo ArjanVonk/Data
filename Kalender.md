@@ -1,10 +1,4 @@
 # Deadlines en data:
-7 december 14:45 afspraak orthopeed Rijswijk \
-8 december Eten met Afstudeergroep \
-9 december Pandemic Date \
-10 december Schrijfmateriaal naar Robert versturen \
-12 december 14:00 F1 Race Abu Dhabi \
-12 december Dubbeldate \
 14 december 10:00 Meeting Robert \
 14 december 16:30 MRI scan laten maken \
 16 december Theoretical Background af \
