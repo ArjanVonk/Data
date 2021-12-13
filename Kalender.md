@@ -3,8 +3,10 @@
 14 december 16:30 MRI scan laten maken \
 16 december Theoretical Background af \
 19 december Twilight Imperium spelen \
+20 december Pandemic Date \
 21 december Zelftesten aanvragen \
 23 december Einde Digital Detox \
+23 december Dubbeldate Rick + Petra \
 24 december Methodology af \
 25 december tot en met 2 januari Vrij \
 29 December Scythe Spelen met de Boys \
