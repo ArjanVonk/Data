@@ -5,6 +5,7 @@
 19 december Twilight Imperium spelen \
 20 december Pandemic Date \
 21 december Zelftesten aanvragen \
+21 december Telefoonisch contact over MRI \
 23 december Einde Digital Detox \
 23 december Dubbeldate Rick + Petra \
 24 december Methodology af \
