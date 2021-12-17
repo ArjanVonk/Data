@@ -1,7 +1,4 @@
 # Deadlines en data:
-14 december 10:00 Meeting Robert \
-14 december 16:30 MRI scan laten maken \
-16 december Theoretical Background af \
 19 december Twilight Imperium spelen \
 20 december Pandemic Date \
 21 december Zelftesten aanvragen \
