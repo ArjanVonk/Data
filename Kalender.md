@@ -9,7 +9,7 @@
 18-20 februari Atlantis reunieweekend \
 27 maart Spinvis \
 8 mei Moederdag \
-28 mei Memphis Maniacs \
+28 mei Memphis Maniacs 
 
 
 # Verjaardagen
