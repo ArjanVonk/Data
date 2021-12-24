@@ -1,14 +1,8 @@
 # Deadlines en data:
-19 december Twilight Imperium spelen \
-20 december Pandemic Date \
-21 december Zelftesten aanvragen \
-21 december Telefoonisch contact over MRI \
-23 december Einde Digital Detox \
-23 december Dubbeldate Rick + Petra \
-24 december Methodology af \
-25 december tot en met 2 januari Vrij \
+27 december Twilight Imperium spelen\
 29 December Scythe Spelen met de Boys \
 7 januari Results af \
+9 januari Kerstdiner Eindhoven \
 10 januari Introduction af \
 12 januari Abstract af \
 14 januari Related works af \
