@@ -6,10 +6,6 @@
 10 januari Introduction af \
 12 januari Abstract af \
 14 januari Related works af \
-19 Conclusions and Future works af \
-8  januari naar Memphis Maniacs in Purmerend \
-9  januari Abra Afscheidsreunie \
-15 januari afstubo David \
 18-20 februari Atlantis reunieweekend \
 27 maart Spinvis \
 8 mei Moederdag \
