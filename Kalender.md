@@ -1,11 +1,6 @@
 # Deadlines en data:
-27 december Twilight Imperium spelen\
-29 December Scythe Spelen met de Boys \
-7 januari Results af \
 9 januari Kerstdiner Eindhoven \
-10 januari Introduction af \
-12 januari Abstract af \
-14 januari Related works af \
+17 januari Greenlight verslag af \
 18-20 februari Atlantis reunieweekend \
 27 maart Spinvis \
 8 mei Moederdag \
