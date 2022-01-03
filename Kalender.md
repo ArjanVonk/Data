@@ -1,4 +1,5 @@
 # Deadlines en data:
+7 januari 16:00-16:45 met Bart-Peter praten over de Intel \
 7 januari Met David Chillen \
 9 januari Kerstdiner Eindhoven \
 14 januari Scythe spelen \
