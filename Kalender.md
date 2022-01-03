@@ -1,4 +1,5 @@
 # Deadlines en data:
+7 januari Met David Chillen \
 9 januari Kerstdiner Eindhoven \
 14 januari Scythe spelen \
 17 januari Greenlight verslag af \
