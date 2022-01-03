@@ -4,6 +4,7 @@
 9 januari Kerstdiner Eindhoven \
 14 januari Scythe spelen \
 17 januari Greenlight verslag af \
+21 januari Pandemic Date \
 6 februari Scythe spelen \
 18-20 februari Atlantis reunieweekend \
 27 maart Spinvis \
