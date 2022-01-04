@@ -2,9 +2,12 @@
 7 januari 16:00-16:45 met Bart-Peter praten over de Intel \
 7 januari Met David Chillen \
 9 januari Kerstdiner Eindhoven \
+11 januari 10:00 Meeting Robert \
 14 januari Scythe spelen \
 17 januari Greenlight verslag af \
+18 januari 10:00 Meeting Robert \
 21 januari Pandemic Date \
+25 januari 10:00 Meeting Robert \
 6 februari Scythe spelen \
 18-20 februari Atlantis reunieweekend \
 27 maart Spinvis \
