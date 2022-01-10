@@ -7,6 +7,7 @@
 25 januari 10:00 Meeting Robert \
 27 januari 15:00-16:00 Job search strategies \
 6 februari Scythe spelen \
+8 februari 11:00 Gesprek Alten \
 18-20 februari Atlantis reunieweekend \
 26 februari Chillen met Chillis \
 27 maart Spinvis \
