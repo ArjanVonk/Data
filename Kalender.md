@@ -1,6 +1,4 @@
 # Deadlines en data:
-7 januari Met David Chillen \
-9 januari Kerstdiner Eindhoven \
 11 januari 10:00 Meeting Robert \
 14 januari Scythe spelen \
 17 januari Greenlight verslag af \
@@ -10,6 +8,7 @@
 27 januari 15:00-16:00 Job search strategies \
 6 februari Scythe spelen \
 18-20 februari Atlantis reunieweekend \
+26 februari Chillen met Chillis \
 27 maart Spinvis \
 8 mei Moederdag \
 28 mei Memphis Maniacs 
