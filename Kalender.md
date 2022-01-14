@@ -4,6 +4,7 @@
 17 januari Greenlight verslag af \
 18 januari 10:00 Meeting Robert \
 21 januari Pandemic Date \
+24 januari Update progress meeting 12:30 \
 25 januari 10:00 Meeting Robert \
 27 januari 15:00-16:00 Job search strategies \
 6 februari Scythe spelen \
