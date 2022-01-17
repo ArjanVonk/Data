@@ -1,6 +1,4 @@
 # Deadlines en data:
-11 januari 10:00 Meeting Robert \
-14 januari Scythe spelen \
 17 januari Greenlight verslag af \
 18 januari 10:00 Meeting Robert \
 21 januari Pandemic Date \
