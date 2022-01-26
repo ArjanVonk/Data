@@ -4,6 +4,7 @@
 8 februari 11:00 Gesprek Alten \
 8 - 10 februari Solicitatietrainingen DDB \
 14 - 16 februari Orientatiedagen DDB \
+18 februari Eten met Arend, Mels en Robert \
 18-20 februari Atlantis reunieweekend \
 26 februari Chillen met Chillis \
 19 maart 
