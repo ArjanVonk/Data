@@ -1,5 +1,4 @@
 # Deadlines en data:
-27 januari 15:00-16:00 Job search strategies \
 30 januari Mark helpen met verhuizen 's ochtends \
 6 februari Scythe spelen \
 8 februari 11:00 Gesprek Alten \
