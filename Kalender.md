@@ -3,9 +3,9 @@
 5 februari met Annet op Pad \
 6 februari Scythe spelen \
 8 februari 11:00 Gesprek Alten \
+8 februari 14:00 Assessment training \
 8 - 10 februari Solicitatietrainingen DDB \
 10 februari 10:00 spoedcursus financien \
-11 februari 
 14 - 16 februari Orientatiedagen DDB \
 18 februari Eten met Arend, Mels en Robert \
 18-20 februari Atlantis reunieweekend \
