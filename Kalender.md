@@ -10,6 +10,7 @@
 18 februari Eten met Arend, Mels en Robert \
 18-20 februari Atlantis reunieweekend \
 26 februari Chillen met Chillis \
+26 februari Afstudeerborrel Roy \
 19 maart 
 21 - 25 maart Koffiegesprekken DDB \
 27 maart Spinvis \
