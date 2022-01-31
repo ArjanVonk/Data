@@ -1,9 +1,11 @@
 # Deadlines en data:
-30 januari Mark helpen met verhuizen 's ochtends \
+4 februari deadline background + introduction \
+5 februari met Annet op Pad \
 6 februari Scythe spelen \
 8 februari 11:00 Gesprek Alten \
 8 - 10 februari Solicitatietrainingen DDB \
 10 februari 10:00 spoedcursus financien \
+11 februari 
 14 - 16 februari Orientatiedagen DDB \
 18 februari Eten met Arend, Mels en Robert \
 18-20 februari Atlantis reunieweekend \
@@ -11,6 +13,7 @@
 19 maart 
 21 - 25 maart Koffiegesprekken DDB \
 27 maart Spinvis \
+9 - 10 april Jaarclub in Estland \
 8 mei Moederdag \
 28 mei Memphis Maniacs 
 
