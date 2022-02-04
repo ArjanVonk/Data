@@ -9,6 +9,7 @@
 14 - 16 februari Orientatiedagen DDB \
 18 februari Eten met Arend, Mels en Robert \
 18-20 februari Atlantis reunieweekend \
+25 februari Scythe \
 26 februari Chillen met Chillis \
 26 februari Afstudeerborrel Roy \
 19 maart 
