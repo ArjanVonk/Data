@@ -11,6 +11,8 @@
 25 februari Scythe \
 26 februari Chillen met Chillis \
 26 februari Afstudeerborrel Roy \
+8 maart Job search group 15:00 1ste meeting \
+15 maart Job search group 15:00 2de meeting \
 19 maart 
 21 - 25 maart Koffiegesprekken DDB \
 27 maart Spinvis \
