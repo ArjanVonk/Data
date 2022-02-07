@@ -1,12 +1,11 @@
 # Deadlines en data:
-4 februari deadline background + introduction \
-5 februari met Annet op Pad \
-6 februari Scythe spelen \
 8 februari 11:00 Gesprek Alten \
-8 februari 14:00 Assessment training \
+8 februari 14:00 Assessment training 13:45 \
 8 - 10 februari Solicitatietrainingen DDB \
 10 februari 10:00 spoedcursus financien https://teams.microsoft.com/l/meetup-join/19%3ameeting_NmYwYzBiZjgtZjljZC00MzYzLThlYTItMDQ3YWE0NWY4ZjJk%40thread.v2/0?context=%7b%22Tid%22%3a%22096e524d-6929-4030-8cd3-8ab42de0887b%22%2c%22Oid%22%3a%220f3e9d9d-4352-46cb-85f9-73b729c7968e%22%7d  \
+12 - 13 februari Naar Annets ouders \
 14 - 16 februari Orientatiedagen DDB \
+18 deadline Thesis \
 18 februari Eten met Arend, Mels en Robert \
 18-20 februari Atlantis reunieweekend \
 25 februari Scythe \
