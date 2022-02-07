@@ -11,7 +11,9 @@
 25 februari Scythe \
 26 februari Chillen met Chillis \
 26 februari Afstudeerborrel Roy \
+3 maart 15:00 Interview workshop \
 8 maart Job search group 15:00 1ste meeting \
+8 maart 15:00 salary negotiation \ 
 15 maart Job search group 15:00 2de meeting \
 19 maart 
 21 - 25 maart Koffiegesprekken DDB \
