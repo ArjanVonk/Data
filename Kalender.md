@@ -13,7 +13,7 @@
 4 maart evt vrij weekend \
 5 maart Afstubo Tim van Driel \
 8 maart Job search group 15:00 1ste meeting \
-8 maart 15:00 salary negotiation \ 
+8 maart 15:00 salary negotiation \
 10 maart 10:00 2de gesprek Alten \
 11 maart vrij weekend \
 15 maart Job search group 15:00 2de meeting \
