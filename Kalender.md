@@ -10,13 +10,14 @@
 26 februari Chillen met Chillis \
 26 februari Afstudeerborrel Roy \
 3 maart 15:00 Interview workshop \
+4 maart evt vrij weekend \
 5 maart Afstubo Tim van Driel \
 8 maart Job search group 15:00 1ste meeting \
 8 maart 15:00 salary negotiation \ 
 10 maart 10:00 2de gesprek Alten \
-12 maart vrij weekend \
+11 maart vrij weekend \
 15 maart Job search group 15:00 2de meeting \
-19 maart vrij weekend \
+18 maart vrij weekend \
 21 - 25 maart Koffiegesprekken DDB \
 26 maart afstubo Eveline \
 26 maart afstubo Jeroen \
