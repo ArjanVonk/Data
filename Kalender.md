@@ -1,7 +1,4 @@
 # Deadlines en data:
-12 - 13 februari Naar Annets ouders \
-14 februari Liefje jarig \
-14 - 16 februari Orientatiedagen DDB \
 18 deadline Thesis \
 18 februari Eten met Arend, Mels en Robert \
 18-20 februari Atlantis reunieweekend \
