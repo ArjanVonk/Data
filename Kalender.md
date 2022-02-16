@@ -11,6 +11,7 @@
 26 februari Afstudeerborrel Roy \
 3 maart 15:00 Interview workshop \
 4 maart evt vrij weekend \
+4 maart Afstubo Boob \
 5 maart Afstubo Tim van Driel \
 8 maart Job search group 15:00 1ste meeting \
 8 maart 15:00 salary negotiation \
