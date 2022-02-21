@@ -1,7 +1,4 @@
 # Deadlines en data:
-18 deadline Thesis \
-18 februari Eten met Arend, Mels en Robert \
-18-20 februari Atlantis reunieweekend \
 24 februari Pandemic laatste maand \
 25 februari Scythe \
 26 februari Chillen met Chillis \
