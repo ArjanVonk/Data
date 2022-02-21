@@ -1,4 +1,5 @@
 # Deadlines en data:
+22 februari 12:30-13:00 kans op lunch roy \
 24 februari Pandemic laatste maand \
 25 februari Scythe \
 26 februari Chillen met Chillis \
