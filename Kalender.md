@@ -9,12 +9,14 @@
 3 maart 15:00 Interview workshop \
 4 maart evt vrij weekend \
 4 maart Afstubo Boob \
+5 maart Afstubo Ariel \
 5 maart Afstubo Tim van Driel \
 8 maart Job search group 15:00 1ste meeting \
 8 maart 15:00 salary negotiation \
 10 maart 10:00 2de gesprek Alten \
 11 maart vrij weekend \
 15 maart Job search group 15:00 2de meeting \
+16 maart Gebouw bezoeken in rotterdam met pap \
 18 maart vrij weekend \
 21 - 25 maart Koffiegesprekken DDB \
 26 maart afstubo Eveline \
