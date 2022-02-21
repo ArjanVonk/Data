@@ -11,10 +11,10 @@
 5 maart Afstubo Ariel \
 5 maart Afstubo Tim van Driel \
 8 maart 19:30 dansen \
-8 maart Job search group 15:00 1ste meeting \
 8 maart 15:00 salary negotiation \
 10 maart 10:00 2de gesprek Alten \
 11 maart vrij weekend \
+15 maart Job search group 15:00 1ste meeting \
 15 maart 19:30 dansen \
 15 maart Job search group 15:00 2de meeting \
 16 maart Gebouw bezoeken in rotterdam met pap \
