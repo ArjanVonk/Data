@@ -7,6 +7,7 @@
 1 maart 19:30 dansen \
 3 maart 15:00 Interview workshop \
 4 maart evt vrij weekend \
+4 maart Eten robert/Mels \
 4 maart Afstubo Boob \
 5 maart Afstubo Ariel \
 5 maart Afstubo Tim van Driel \
