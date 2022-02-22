@@ -2,6 +2,7 @@
 22 februari 12:30-13:00 kans op lunch roy \
 24 februari Pandemic laatste maand \
 25 februari Scythe \
+26 februari met Annet naar Museum \
 26 februari Afstudeerborrel Roy \
 1 maart 19:30 dansen \
 3 maart 15:00 Interview workshop \
