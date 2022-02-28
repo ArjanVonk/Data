@@ -13,12 +13,13 @@
 11 maart vrij weekend \
 15 maart 19:30 dansen \
 15 maart Job search group 15:00 2de meeting \
-16 maart Gebouw bezoeken in rotterdam met pap \
-18 maart vrij weekend \
+19 maart Gebouw bezoeken in rotterdam met pap \
+19 maart Housewarming mark \
 22 maart 19:30 dansen \
 26 maart afstubo Eveline \
 26 maart afstubo Jeroen \
 27 maart Spinvis \
+28 maart waarschijnlijk afstuderen \
 29 maart 19:30 dansen \
 5 april 19:30 dansen \
 9 - 10 april Jaarclub in Estland \
