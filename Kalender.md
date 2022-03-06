@@ -1,18 +1,11 @@
 # Deadlines en data:
-1 maart 19:30 dansen \
-3 maart Pandemic laatste maand \
-3 maart 15:00 Interview workshop \
-4 maart evt vrij weekend \
-4 maart Eten robert/Mels \
-4 maart Afstubo Boob \
-5 maart Afstubo Ariel \
-5 maart Afstubo Tim van Driel \
-8 maart 19:30 dansen \
+8 maart 18:00 dansen \
 8 maart 15:00 salary negotiation \
 10 maart 10:00 2de gesprek Alten \
 11 maart vrij weekend \
 15 maart 19:30 dansen \
 15 maart Job search group 15:00 2de meeting \
+17 maart pandemic spelen \
 19 maart Gebouw bezoeken in rotterdam met pap \
 19 maart Housewarming mark \
 22 maart 19:30 dansen \
@@ -21,9 +14,12 @@
 27 maart Spinvis \
 28 maart waarschijnlijk afstuderen \
 29 maart 19:30 dansen \
+2 april BBQ Wiets \
 5 april 19:30 dansen \
 9 - 10 april Jaarclub in Estland \
+23 april Annet Ouders Trouwdagfeest \
 8 mei Moederdag \
+20 - 22 mei Atlantisweekend \
 28 mei Memphis Maniacs 
 
 
