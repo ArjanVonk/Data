@@ -2,7 +2,7 @@
 8 maart 18:00 dansen \
 8 maart 15:00 salary negotiation \
 10 maart 10:00 2de gesprek Alten \
-11 maart vrij weekend \
+11 maart weekend middelburg \
 15 maart 19:30 dansen \
 15 maart Job search group 15:00 2de meeting \
 17 maart pandemic spelen \
