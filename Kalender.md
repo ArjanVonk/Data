@@ -9,10 +9,11 @@
 19 maart Gebouw bezoeken in rotterdam met pap \
 19 maart Housewarming mark \
 22 maart 19:30 dansen \
+25 maart Scythe spelen met de boys \
 26 maart afstubo Eveline \
 26 maart afstubo Jeroen \
 27 maart Spinvis \
-28 maart waarschijnlijk afstuderen \
+28 maart afstuderen \
 29 maart 19:30 dansen \
 2 april BBQ Wiets \
 5 april 19:30 dansen \
