@@ -2,6 +2,7 @@
 8 maart 18:00 dansen \
 8 maart 15:00 salary negotiation \
 10 maart 10:00 2de gesprek Alten \
+10 maart 13:45 afstudeerpraatje Eveline IDE arena \
 11 maart weekend middelburg \
 15 maart 19:30 dansen \
 15 maart Job search group 15:00 2de meeting \
