@@ -4,9 +4,11 @@
 11 maart weekend middelburg \
 15 maart 19:30 dansen \
 15 maart Job search group 15:00 2de meeting \
+16 maart chillen met Csaba \
 17 maart pandemic spelen \
 19 maart Gebouw bezoeken in rotterdam met pap \
 19 maart Housewarming mark \
+22 maart Deadline reageren Alten
 22 maart 19:30 dansen \
 25 maart Scythe spelen met de boys \
 26 maart afstubo Eveline \
