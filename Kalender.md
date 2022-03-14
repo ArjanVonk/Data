@@ -16,6 +16,7 @@
 29 maart 19:30 dansen \
 2 april BBQ Wiets \
 5 april 19:30 dansen \
+7 - 10 april met Pap op vakantie \
 9 - 10 april Jaarclub in Estland \
 23 april Annet Ouders Trouwdagfeest \
 8 mei Moederdag \
