@@ -5,6 +5,7 @@
 15 maart Job search group 15:00 2de meeting \
 16 maart 17:00 Practice meeting CGI \
 16 maart chillen met Csaba \
+17 maart 9:00 Agricola wordt opgehaald \
 17 maart pandemic spelen \
 19 maart Gebouw bezoeken in rotterdam met pap \
 19 maart Housewarming mark Terraforming Mars meenemen \
