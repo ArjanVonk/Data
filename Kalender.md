@@ -1,20 +1,18 @@
 # Deadlines en data:
-10 maart 10:00 2de gesprek Alten \
-10 maart 13:45 afstudeerpraatje Eveline IDE arena \
-11 maart weekend middelburg \
-15 maart 19:30 dansen \
+15 maart 9:00 gesprek Wesley Notten \
+15 maart 18:00 dansen \
 15 maart Job search group 15:00 2de meeting \
 16 maart chillen met Csaba \
 17 maart pandemic spelen \
 19 maart Gebouw bezoeken in rotterdam met pap \
 19 maart Housewarming mark \
-22 maart Deadline reageren Alten
-22 maart 19:30 dansen \
+22 maart Deadline reageren Alten \
+22 maart 18:00 dansen \
 25 maart Scythe spelen met de boys \
 26 maart afstubo Eveline \
 26 maart afstubo Jeroen \
 27 maart Spinvis \
-28 maart afstuderen \
+28 maart afstuderen 10:00 \
 29 maart 19:30 dansen \
 2 april BBQ Wiets \
 5 april 19:30 dansen \
