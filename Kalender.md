@@ -1,6 +1,6 @@
 # Deadlines en data:
 15 maart 9:00 gesprek Wesley Notten \
-15 maart 12:30 lunchen Eveline \ 
+15 maart 12:30 lunchen Eveline \
 15 maart 18:00 dansen \
 15 maart Job search group 15:00 2de meeting \
 16 maart 17:00 Practice meeting CGI \
