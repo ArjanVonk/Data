@@ -1,9 +1,4 @@
 # Deadlines en data:
-16 maart 16:00 Gesprek robert van den Berg \
-16 maart 17:00 Practice meeting CGI \
-16 maart chillen met Csaba \
-17 maart 9:00 Agricola wordt opgehaald \
-17 maart pandemic spelen \
 19 maart Gebouw bezoeken in rotterdam met pap \
 19 maart Housewarming mark Terraforming Mars meenemen \
 22 maart Deadline reageren Alten \
