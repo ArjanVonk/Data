@@ -1,12 +1,9 @@
 # Deadlines en data:
-19 maart Gebouw bezoeken in rotterdam met pap \
-19 maart Housewarming mark Terraforming Mars meenemen \
 22 maart 18:00 dansen \
 23 maart Maandmeeting Alten \
 25 maart Scythe spelen met de boys \
 26 maart afstubo Eveline \
 26 maart afstubo Jeroen \
-27 maart Spinvis \
 28 maart afstuderen 10:00 \
 29 maart 19:30 dansen \
 2 april BBQ Wiets \
