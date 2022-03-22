@@ -1,6 +1,5 @@
 # Deadlines en data:
 22 maart 18:00 dansen \
-23 maart Maandmeeting Alten \
 25 maart Scythe spelen met de boys \
 26 maart afstubo Eveline \
 26 maart afstubo Jeroen \
@@ -13,7 +12,8 @@
 23 april Annet Ouders Trouwdagfeest \
 8 mei Moederdag \
 20 - 22 mei Atlantisweekend \
-28 mei Memphis Maniacs 
+28 mei Memphis Maniacs \
+23-27 oktober IROS \
 
 
 # Verjaardagen
