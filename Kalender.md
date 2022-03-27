@@ -1,16 +1,15 @@
 # Deadlines en data:
-22 maart 18:00 dansen \
-25 maart Scythe spelen met de boys \
-26 maart afstubo Eveline \
-26 maart afstubo Jeroen \
 28 maart afstuderen 10:00 \
 29 maart 19:30 dansen \
 2 april BBQ Wiets \
 5 april 19:30 dansen \
 7 - 10 april met Pap op vakantie \
-9 - 10 april Jaarclub in Estland \
+11 t/m 15 april naar Berlijn \
+16 april verjaardag Richard \
 23 april Annet Ouders Trouwdagfeest \
+1 mei Eerste werkdag \
 8 mei Moederdag \
+21 mei Twilight Imperium Potje \
 20 - 22 mei Atlantisweekend \
 28 mei Memphis Maniacs \
 23-27 oktober IROS \
