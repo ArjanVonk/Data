@@ -13,6 +13,7 @@
 8 mei Moederdag \
 21 mei Twilight Imperium Potje \
 28 mei Memphis Maniacs \
+1 t/m 10 juli Ignotis vakantie \
 23-27 oktober IROS \
 
 
