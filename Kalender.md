@@ -7,12 +7,15 @@
 7 - 10 april met Pap op vakantie \
 11 t/m 15 april naar Berlijn \
 16 april verjaardag Richard \
+17 - 18 april Pasen \
 23 april Annet Ouders Trouwdagfeest \
 26 april Koningsdag \
 1 mei Eerste werkdag \
 8 mei Moederdag \
 21 mei Twilight Imperium Potje \
+26 mei Hemelvaart \
 28 mei Memphis Maniacs \
+5 juni Pinksteren \
 1 t/m 10 juli Ignotis vakantie \
 23-27 oktober IROS \
 
