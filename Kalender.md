@@ -3,6 +3,7 @@
 31 maart 13:00 laatste meeting CGI \
 31 maart Stukafest \
 2 april BBQ Wiets \
+3 april, 2,5 jaar met annet \
 5 april 19:30 dansen \
 7 - 10 april met Pap op vakantie \
 11 t/m 15 april naar Berlijn \
