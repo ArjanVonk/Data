@@ -7,7 +7,8 @@
 4 april chillen lily \
 5 april 19:30 dansen \
 7 - 10 april met Pap op vakantie \
-11 t/m 15 april naar Berlijn \
+11 april 8-18-15:10 Trein naar Berlijn \
+16 april 6:46-14:05 Reizen met Trein \
 16 april verjaardag Richard \
 17 - 18 april Pasen \
 23 april Annet Ouders Trouwdagfeest \
