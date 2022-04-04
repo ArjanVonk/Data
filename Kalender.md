@@ -1,9 +1,4 @@
 # Deadlines en data:
-29 maart 19:30 dansen \
-31 maart 13:00 laatste meeting CGI \
-31 maart Stukafest \
-2 april BBQ Wiets \
-3 april, 2,5 jaar met annet \
 4 april chillen lily \
 5 april 19:30 dansen \
 7 - 10 april met Pap op vakantie \
@@ -12,8 +7,9 @@
 16 april verjaardag Richard \
 17 - 18 april Pasen \
 23 april Annet Ouders Trouwdagfeest \
+24 april Zuiderspel \
 26 april Koningsdag \
-1 mei Eerste werkdag \
+2 mei Eerste werkdag \
 8 mei Moederdag \
 21 mei Twilight Imperium Potje \
 26 mei Hemelvaart \
@@ -21,6 +17,7 @@
 5 juni Pinksteren \
 1 t/m 10 juli Ignotis vakantie \
 23-27 oktober IROS \
+5 - 6 november Spellenspektakel 
 
 
 # Verjaardagen
