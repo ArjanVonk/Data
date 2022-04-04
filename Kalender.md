@@ -8,7 +8,7 @@
 5 april 19:30 dansen \
 7 - 10 april met Pap op vakantie \
 11 april 8-18-15:10 Trein naar Berlijn \
-16 april 6:46-14:05 Reizen met Trein \
+16 april 6:46-13:05 A'dam/14:05 Delft Thuis \ 
 16 april verjaardag Richard \
 17 - 18 april Pasen \
 23 april Annet Ouders Trouwdagfeest \
