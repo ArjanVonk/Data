@@ -1,9 +1,8 @@
 # Deadlines en data:
-7 - 10 april met Pap op vakantie \
-11 april 8-18-15:10 Trein naar Berlijn \
 16 april 6:46-13:05 A'dam/14:05 Delft Thuis \ 
 16 april verjaardag Richard \
 17 - 18 april Pasen \
+19 april 11:00 koffie drinken Talitha \
 23 april Annet Ouders Trouwdagfeest \
 24 april Zuiderspel \
 26 april Koningsdag \
@@ -15,6 +14,7 @@
 28 mei Memphis Maniacs \
 5 juni Pinksteren \
 1 t/m 10 juli Ignotis vakantie \
+23 juli eten Qosmos \
 23-27 oktober IROS \
 5 - 6 november Spellenspektakel 
 
