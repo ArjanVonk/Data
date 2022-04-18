@@ -1,10 +1,10 @@
 # Deadlines en data:
-16 april 6:46-13:05 A'dam/14:05 Delft Thuis \ 
-16 april verjaardag Richard \
-17 - 18 april Pasen \
 19 april 11:00 koffie drinken Talitha \
+19 april 14:30 Fietsen met Harold \
+22 april Afstubo Marjolein \
 23 april Annet Ouders Trouwdagfeest \
 24 april Zuiderspel \
+25 april My City Spelen \
 26 april Koningsdag \
 30 april Afstubo Maxime \
 2 mei Eerste werkdag \
