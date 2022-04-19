@@ -1,6 +1,7 @@
 # Deadlines en data:
 19 april 11:00 koffie drinken Talitha \
 19 april 14:30 Fietsen met Harold \
+21 april 10:00 Afstudeerpraatje Marjolein Aula \
 22 april Afstubo Marjolein \
 23 april Annet Ouders Trouwdagfeest \
 24 april Zuiderspel \
