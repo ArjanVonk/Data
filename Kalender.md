@@ -5,8 +5,9 @@
 22 april Afstubo Marjolein \
 23 april Annet Ouders Trouwdagfeest \
 24 april Zuiderspel \
+24 april TI spelen \
 25 april My City Spelen \
-26 april Koningsdag \
+27 april Koningsdag \
 30 april Afstubo Maxime \
 2 mei Eerste werkdag \
 8 mei Moederdag \
