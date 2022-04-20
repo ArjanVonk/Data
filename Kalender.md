@@ -7,9 +7,11 @@
 24 april Zuiderspel \
 24 april TI spelen \
 25 april My City Spelen \
+26 april 16:00 bij Door op kraamvisite \
 27 april Koningsdag \
 30 april Afstubo Maxime \
 2 mei Eerste werkdag \
+3 t/m 4 mei waarschijnlijk in Waalwijk \
 8 mei Moederdag \
 21 mei Twilight Imperium Potje \
 26 mei Hemelvaart \
