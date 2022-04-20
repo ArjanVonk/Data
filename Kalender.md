@@ -17,6 +17,7 @@
 5 juni Pinksteren \
 1 t/m 10 juli Ignotis vakantie \
 23 juli eten Qosmos \
+1 september review Goals \
 23-27 oktober IROS \
 5 - 6 november Spellenspektakel 
 
