@@ -1,26 +1,19 @@
 # Deadlines en data:
-19 april 11:00 koffie drinken Talitha \
-19 april 14:30 Fietsen met Harold \
-21 april 10:00 Afstudeerpraatje Marjolein Aula \
-22 april Afstubo Marjolein \
-23 april Annet Ouders Trouwdagfeest \
-24 april Zuiderspel \
-24 april TI spelen \
-25 april My City Spelen \
-26 april 16:00 bij Door op kraamvisite \
-27 april Koningsdag \
-30 april Afstubo Maxime \
 2 mei Eerste werkdag \
 3 t/m 4 mei waarschijnlijk in Waalwijk \
 8 mei Moederdag \
+14 mei Met Neven naar Arcade \
 21 mei Twilight Imperium Potje \
 26 mei Hemelvaart \
 28 mei Memphis Maniacs \
 5 juni Pinksteren \
+10 juni afstubo Twubbe \
+18 juni Naar Tilburg met Annet \
 1 t/m 10 juli Ignotis vakantie \
 23 juli eten Qosmos \
 1 september review Goals \
 23-27 oktober IROS \
+28 oktober 28-diner Jasper \
 5 - 6 november Spellenspektakel 
 
 
