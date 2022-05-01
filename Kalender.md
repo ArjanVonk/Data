@@ -9,6 +9,7 @@
 5 juni Pinksteren \
 10 juni afstubo Twubbe \
 18 juni Naar Tilburg met Annet \
+19 juni Reunie Abracadaberet \
 1 t/m 10 juli Ignotis vakantie \
 23 juli eten Qosmos \
 1 september review Goals \
