@@ -1,7 +1,4 @@
 # Deadlines en data:
-2 mei Eerste werkdag \
-3 t/m 4 mei waarschijnlijk in Waalwijk \
-8 mei Moederdag \
 14 mei Met Neven naar Arcade \
 21 mei Twilight Imperium Potje \
 26 mei Hemelvaart \
@@ -14,7 +11,7 @@
 23 juli eten Qosmos \
 1 september review Goals \
 23-27 oktober IROS \
-28 oktober 28-diner Jasper \
+8 oktober 28-diner Jasper \
 5 - 6 november Spellenspektakel 
 
 
